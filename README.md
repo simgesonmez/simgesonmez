@@ -7,7 +7,7 @@
 - 💬 Contact to me with e-mail : simge.sonmez.10@gmail.com. 
 
 ## Contact 
-https://www.linkedin.com/in/simge-s%C3%B6nmez-5085b1269/
+
 
 
 
