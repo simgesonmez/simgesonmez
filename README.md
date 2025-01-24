@@ -2,7 +2,7 @@
 
 
  -⚡ I'm computer engineer .
-- 🌱 I’m frontend devoloper.
+- 🌱 I’m frontend developer.
 - 🌎 I'm trying to learn everything about computer science.
 - 💬 Contact to me with e-mail : simge.sonmez.10@gmail.com. 
 
